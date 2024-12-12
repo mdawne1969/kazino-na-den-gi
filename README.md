@@ -6,7 +6,6 @@
 | [👉 **POKERDOM CASINO**](https://brandplay.link/Bxg7SC7H) | Легендарное место для любителей покера и слотов. | 🃏 Покерные турниры, 🎁 щедрые бонусы, 📱 удобство. |
 | [👉 **RIOBET CASINO**](https://brandplay.link/dtx89f2L)   | Премиум-казино с большим выбором live-игр.       | 🎰 Более 2000 игр, 🔒 надёжность, 💸 быстрые выплаты. |
 | [👉 **LEX CASINO**](https://brandplay.link/2HFTmBc8)      | Классическое казино с выгодными акциями.         | 🏆 Эксклюзивные турниры, 🎁 бонусы, 🌍 международное признание. |
-| ![GIF](https://tenor.com/ru/view/casino-oldpeople-oldpeopleonslots-slots-vegas-gif-27586086) |
 
 ---
 
@@ -17,7 +16,8 @@
 | [👉 **AURORA CASINO**](https://10trafic-stat2.com/click/668546566bcc6313411604c7/6766/15114/subaccount?promocode=PROMOLB) | Промокод PROMOLB для ярких бонусов.          | 🌌 Уникальная атмосфера, 🎁 промокод, 📱 мобильная версия. |
 | [👉 **STARDA CASINO**](https://brandplay.link/cpFQbWKn)   | Энергичное казино с современным дизайном.       | ⭐ Простота, 🎰 популярные слоты, 💼 программа лояльности. |
 | [👉 **MOSTBET CASINO**](https://ktbtis024ifqfn0mst.com/beQs) | Большие джекпоты и проверенный бренд.           | 💸 Крупные выигрыши, 🏅 надёжность, ⚡ моментальные выплаты. |
-| ![GIF](https://tenor.com/ru/view/casino-oldpeople-oldpeopleonslots-slots-vegas-gif-27586086) |
+
+![🎰](https://media1.tenor.com/m/M6WgkbXFHjwAAAAd/casino-oldpeople.gif)
 
 ---
 
@@ -39,6 +39,8 @@
 | [👉 **ONION CASINO**](https://obclk001-2d.top/click?offer_id=986&partner_id=10542&landing_id=1798&utm_medium=affiliate&sub_1=oncasino3) | Казино с креативным дизайном и комфортной игрой. | 🎰 Оригинальные слоты, 🔒 надёжность, 🌟 фриспины. |
 | [👉 **BOUNTY CASINO**](https://bounty-casino.de/BOVK)     | Тематика пиратов и уникальные бонусы.           | ⚔️ Атмосферные игры, 🎁 редкие акции, 🌟 креативный интерфейс. |
 
+![🎲](https://media1.tenor.com/m/M6WgkbXFHjwAAAAd/casino-oldpeople.gif)
+
 ---
 
 # 🎮 Казино с Фокусом на Программах Лояльности
@@ -48,7 +50,6 @@
 | [👉 **KOMETA CASINO**](https://brandplay.link/tLG15CCb)   | Казино с регулярными фриспинами и акциями.      | 🎁 Частые бонусы, 🎰 топовые слоты, 💳 удобные платежи. |
 | [👉 **R7 CASINO**](https://brandplay.link/zPmNmTWG)       | Игровое разнообразие и призовые турниры.        | 🏆 Призовые турниры, 🎰 множество игр, 🔒 безопасность. |
 | [👉 **HYPE CASINO**](https://hypekaz.com/dc2f44ad0)       | Казино с новейшими играми и круглосуточной поддержкой. | 🎲 Новые слоты, 🌟 поддержка 24/7, 🎁 крупные бонусы. |
-| ![GIF](https://tenor.com/ru/view/casino-oldpeople-oldpeopleonslots-slots-vegas-gif-27586086) |
 
 ---
 
@@ -60,7 +61,9 @@
 | [👉 **SELECTOR CASINO**](https://gosel.fyi/SELVK)         | Казино с персональным подходом к игрокам.      | 🎨 Уникальный стиль, ⚡ мгновенные выплаты, 🎁 фриспины. |
 | [👉 **VOVAN CASINO**](https://vovan.site/d098ab058)       | Казино с дружелюбной атмосферой и турнирами.  | 🎉 Весёлая атмосфера, 🏆 акции, 🔒 конфиденциальность. |
 | [👉 **BRILLX CASINO**](https://brillx.uno/BRIVK)          | Казино для настоящих ценителей.               | 💎 Роскошный дизайн, 🎰 премиум-игры, 🌟 щедрые бонусы. |
-| ![GIF](https://tenor.com/ru/view/casino-oldpeople-oldpeopleonslots-slots-vegas-gif-27586086) |
+
+![💰](https://media1.tenor.com/m/M6WgkbXFHjwAAAAd/casino-oldpeople.gif)
+
 
 Игра в **казино на деньги** — это захватывающее занятие, которое привлекает миллионы игроков по всему миру. Для многих азартных игроков возможность выиграть реальные деньги — это основной драйв, который делает игровые автоматы и столы с живыми дилерами такими привлекательными.
 
